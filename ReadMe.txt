@@ -8,5 +8,5 @@ Genre: Psychological Horror
 
 Developers: TJ Payne & Orson "Hunter" Hodges
 
-3-D Designers: [Insert Names Here]
+3-D Designers: Aaliyah, Bek, Chelsea, Ethan, Gyn, Jordyn, Maksym, Sam J
 
